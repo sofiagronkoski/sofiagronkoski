@@ -4,7 +4,7 @@
 -  Estou me desenvolvendo na linguagem Javascript
 - Utilizo esse espaço para organização e compartilhamento dos meus projetos desenvolvidos
 
-- ### você pode entrar em contato comigo 🛐
+- ### você pode entrar em contato comigo 🧚🏻‍♀️
 
 - paola.silva.sofia@escola.pr.gov.br
 - @sofiagronkoski
